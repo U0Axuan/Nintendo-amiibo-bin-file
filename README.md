@@ -1,0 +1,1 @@
+# Nintendo-amiibo-bin-file
